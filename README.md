@@ -1,1 +1,0 @@
-# starmind_hack_2025
